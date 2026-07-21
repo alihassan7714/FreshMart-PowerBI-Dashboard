@@ -1,6 +1,6 @@
 # Hi, I'm Ali Hassan 👋
 
-### Mathematics Lecturer | Data Analytics & BI Coach | Data Scientist
+### Data Analytics & BI Coach | Data Scientist
 
 📍 Faisalabad, Pakistan | 📧 alihassanabajwauaf@gmail.com | 🔗 [ResearchGate](https://www.researchgate.net/profile/Ali-Hassan-199)
 
